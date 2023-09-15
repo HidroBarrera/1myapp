@@ -1,0 +1,1 @@
+La app es una cosa, una cosa xd
